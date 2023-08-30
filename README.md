@@ -1,4 +1,4 @@
-### Olá Eu sou Kauan Junker 😀
+### Olá! Eu sou Kauan Junker 😀
 
 ## Tecnologias que uso no meu dia a dia
 
